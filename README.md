@@ -1,3 +1,3 @@
-# Hi there, I'm Felippe Regazio
+# Hi there! My name is Felippe Regazio
 
-I'm a passionate software developer focused in Front End development.
+and i fuck loving coding
