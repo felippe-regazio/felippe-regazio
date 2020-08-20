@@ -1,3 +1,3 @@
-## My name is Felippe Regazio
+## Hello, my name is Felippe Regazio
 
-and i fucking love coding
+And i fucking love coding :heart:
